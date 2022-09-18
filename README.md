@@ -1,2 +1,4 @@
 # ChenSitong_414join
-https://github.com/plyingying/ChenSitong_414join/blob/main/%E6%88%98%E9%A9%AC.jpg
+（1）昵称：plyingying
+（2）自我介绍：我是21级数技2班的陈思潼，对游戏设计、3d建模、绘画书法等有着浓厚的兴趣。
+（3）加入414后，我希望能够学习关于游戏设计方面的内容，加强自己和同伴协作的能力，提升专业能力。
